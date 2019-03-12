@@ -1,7 +1,5 @@
 # Nahuel Lema
 
----
-
 ### Mis cursos
 
 ⭐ https://www.udemy.com/user/nahuellema/
