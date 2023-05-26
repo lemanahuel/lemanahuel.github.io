@@ -1,9 +1,9 @@
 # Nahuel Lema
 
-### Mis cursos
+👨‍💻 Programador | 🤓​ Estudiante | 🏋️‍♂️​ Crossfiter | 🫡​ Mentor | 🙂​ Generalista 
 
-⭐ https://www.udemy.com/user/nahuellema/
+✨ Público diariamente sobre temas como Educación, Liderazgo, Innovación e Inspiración en [LINKEDIN](https://www.linkedin.com/in/nahuellema/)
 
-### Contacto
+#Coderhouse #DemocratizandoLaEducación
 
-👋 [Nahuel Lema](https://www.linkedin.com/in/nahuellema/)
+
